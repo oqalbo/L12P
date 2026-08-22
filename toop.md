@@ -1,4 +1,4 @@
 ye toop daram ghelgheliye
-sorkh va sedif va abiye
+sorkho sedifo abiye
 mizanam zamin hava mire.
 nemidooni ta koja mire
